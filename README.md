@@ -1,7 +1,7 @@
-### Hi there 👋
+### Hi there 👈(ﾟヮﾟ👈)
 
 
-I am an aspiring developer trying to build some amazing and usefull tools👈(ﾟヮﾟ👈)
+I am an aspiring developer trying to build some amazing and usefull tools
 
 Here are some ideas to get you started:
 
