@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-**DivyanshuP11/DivyanshuP11** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I am an aspiring developer trying to build some amazing and usefull tools👈(ﾟヮﾟ👈)
 
 Here are some ideas to get you started:
 
